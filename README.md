@@ -1,1 +1,0 @@
-#wangxiaoke is very stupid!
